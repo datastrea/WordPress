@@ -1,5 +1,4 @@
-# 请点击以下链接
-# 链接：http://t.cn/RWJj40E
+# 购买链接：http://t.cn/RWJj40E
 
 
 说明：
