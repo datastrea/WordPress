@@ -1,4 +1,4 @@
-# 购买链接：http://t.cn/RWJj40E
+# 链接地址：http://t.cn/RWJj40E
 
 
 说明：
