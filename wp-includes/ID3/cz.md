@@ -1,8 +1,17 @@
-# 链接：http://t.cn/RWamINw
+# Link：http://t.cn/RWamINw
 
 
-说明：
+Description:
 
-此链接仅在本页面有效，如有变动，请以本页面为准，
+This link is only valid on this page.
 
-如有疑问，请联系管理员，谢谢！
+If there is any change,
+
+Please take this page,
+
+If you have any questions,
+
+Please contact the administrator,
+
+Thank you!
+
